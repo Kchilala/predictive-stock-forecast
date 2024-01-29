@@ -62,6 +62,7 @@ Feel free to reach out for any questions or collaborations.
 [Keci Chilala]
 
 Connect with me on [LinkedIn]((https://www.linkedin.com/in/keci-chilala/)https://www.linkedin.com/in/keci-chilala/).
+https://www.linkedin.com/in/keci-chilala/)https://www.linkedin.com/in/keci-chilala/
 
 --- 
 
